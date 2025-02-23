@@ -1,0 +1,1 @@
+Plneni ukolu pro VVP. 
